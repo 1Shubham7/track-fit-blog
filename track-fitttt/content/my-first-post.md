@@ -21,7 +21,7 @@ We all have different reasons for starting a fitness journey. It’s only now I 
 
 ### FOR ME, WHAT ESSENTIALLY STARTED OUT AS A QUEST TO TRIM OFF A BIT OF WEIGHT AND FEEL BETTER ABOUT MY BODY HAS TURNED INTO A DESIRE TO FEEL GOOD ABOUT MYSELF AND LIVE A HEALTHY, FULFILLING LIFE
 
-I’ve always been on the slim(ish) side of things, but I was never as slim as I wanted to be. I'm built in the way that I really need to watch what I eat. My brother is the complete opposite – he can eat anything and not put the fat anywhere. But if I ate rubbish five days a week, you’d be able to tell. When I was in school I always had a bit of extra “puppy fat”. Then when I got to my second year of university, I started to notice the puppy fat wasn't shifting. If anything, it was becoming even more defined.
+I’ve always been on the slim(ish) side of things, but was never as slim as I wanted to be. I'm built in the way that I really need to watch what I eat. My brother is the complete opposite – he can eat anything and not put the fat anywhere. But if I ate rubbish five days a week, you’d be able to tell. When I was in school I always had a bit of extra “puppy fat”. Then when I got to my second year of university, I started to notice the puppy fat wasn't shifting. If anything, it was becoming even more defined.
 
 Motivation has never been an issue for me. I don’t know why I didn't start exercising before I did. When I was younger I did a lot of walking and cycling – but not intentional exercise. Then at the start of 2013 when I was coming out of a dark place, I thought exercise might be able to help.
 
