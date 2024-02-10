@@ -2,11 +2,11 @@
 title = 'A Little Story on Starting Your Fitness Journey'
 date = 2023-11-22T16:55:24+01:00
 draft = false
-description = "This is a description"
+description = "One of the main things I want to do with this blog is inspire you through my own experiences. Since fitness is such a big part of my life, it made total sense to add this as a new category..."
 image = "/images/1s.webp"
 imageBig = "/images/1b.webp"
 categories = ["general", "travel", "culture"]
-authors = ["Lama Dev"]
+authors = ["Vedang Tiwari"]
 avatar = "/images/avatar.webp"
 +++
 
